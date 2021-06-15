@@ -1,0 +1,1 @@
+oieeee amigos tudo bom ?meu nome é thiago e é um prazer conhecer vcs!
